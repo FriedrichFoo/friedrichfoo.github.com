@@ -8,13 +8,13 @@ To make the world a better place, one not only shoulders the responsibility and 
  
 So, ***nice to meet you!***
  
-Name: **Rui Fu**
+* Name: **Rui Fu**
  
-English name: **Friedrich Foo**
+* English name: **Friedrich Foo**
  
-Mobile phone: **18810987938**
+* Mobile phone: **18810987938**
  
-E-mail address: <**594002621@qq.com**> or <**friedrich-foo@pku.edu.cn**>
+* E-mail address: **594002621@qq.com** or **friedrich-foo@pku.edu.cn**
  
   >**So** long as men can breathe, or eyes can see,
  
