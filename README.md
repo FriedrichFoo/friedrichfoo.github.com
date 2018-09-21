@@ -9,7 +9,6 @@ To make the world a better place, one not only shoulders the responsibility and 
 So, ***nice to meet you!*** And here is my personal information.
 
 ***
- 
 * Name: **Rui Fu**
  
 * English name: **Friedrich Foo**
@@ -17,7 +16,6 @@ So, ***nice to meet you!*** And here is my personal information.
 * Mobile phone: **18810987938**
  
 * E-mail address: **594002621@qq.com** or **friedrich-foo@pku.edu.cn**
-
 ***
  
   >**So** long as men can breathe, or eyes can see,
