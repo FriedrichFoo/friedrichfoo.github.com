@@ -10,10 +10,10 @@ To make the world a better place, one not only shoulders the responsibility and 
 
 #### I AM:
 
-[x] always positive,
-[x] always humerous,
-[x] always generous (at least I think so),
-[x] always willing to stand behind you!
+- [x] always positive,
+- [x] always humerous,
+- [x] always generous (at least I think so),
+- [x] always willing to stand behind you!
  
 So, ***nice to meet you!*** And here is my personal information.
 
