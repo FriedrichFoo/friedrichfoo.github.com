@@ -18,4 +18,4 @@ E-mail address: **594002621@qq.com**
  
 **So** long as men can breathe, or eyes can see,
  
-**So** long lives this, and this gives life to thee.(https://github.com/contact) and we’ll help you sort it out.
+**So** long lives this, and this gives life to thee.
