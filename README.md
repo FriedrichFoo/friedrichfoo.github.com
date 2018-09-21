@@ -16,8 +16,8 @@ Mobile phone: **18810987938**
  
 E-mail address: **594002621@qq.com** or **friedrich-foo@pku.edu.cn**
  
-  >**So** long as men can breathe, or eyes can see,>
+  >**So** long as men can breathe, or eyes can see,
  
-  >**So** long lives this, and this gives life to thee.>
+  >**So** long lives this, and this gives life to thee.
   
    From *Shakespeare*
