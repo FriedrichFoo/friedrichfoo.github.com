@@ -15,11 +15,8 @@ So, ***nice to meet you!*** And here is my personal information.
  
 * Mobile phone: **18810987938**
  
-* E-mail address: 
+* E-mail address:**594002621@qq.com** or **friedrich-foo@pku.edu.cn**
 
-1. **594002621@qq.com** 
-          
-2. **friedrich-foo@pku.edu.cn**
 ***
  
   >**So** long as men can breathe, or eyes can see,
